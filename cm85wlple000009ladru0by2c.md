@@ -17,6 +17,6 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1742718857453/e14e341
 
 ---
 
-some random currency • unassigned unicode symbol • scalable vector graphics • freely downloadable materials • Creative Commons licensed • by [Jimmy Ofisia](https://dsgn.lv)
+some random currency • unassigned unicode symbol • scalable vector graphics • freely downloadable materials • Creative Commons licensed • by [Jim Ofisia](https://dsgn.lv)
 
 ### → [**Download Rupiah 02**](https://folder.dsgn.lv/b/rupiah02)
